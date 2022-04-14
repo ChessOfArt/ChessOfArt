@@ -1,0 +1,1 @@
+Chess Of Art first CNFT marketplace with the mechanism of Royalty cash back held on Bitcoin Treasury purchased from all royalty sales on our NFT’s. We're proudly bold to be on Cardano blockchain to bring new functionality to the CNFT space and to support the community innovation efforts and ideas.
